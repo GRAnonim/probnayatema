@@ -1,2 +1,0 @@
-# probnayatema
-GitHub Pages
